@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Selamolela
 - 👀 I’m interested in learning how to code and create projects.
 - 🌱 I’m currently learning the basics of coding.
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on projects and other things.
 - 📫 How to reach me selamolela1738@gmail.com or on Lnkedin @Simon Selamolela
 - 😄 Pronouns: I am Him.
 - ⚡ Fun fact: FIRST Time starting to code. 
